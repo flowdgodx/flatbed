@@ -1,0 +1,1 @@
+Disclaimer: The flatbed used in this script is not our creation. We give full credits to the original creators - https://www.gta5-mods.com/vehicles/mtl-flatbed-tow-truck
